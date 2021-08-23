@@ -8,8 +8,8 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 
 ### Chicken marinade 🐔
 
-- 28 oz boneless and skinless chicken thighs or tenders cut into 1 inch cubes or so
-- 1 cup plain yogurt
+- 800 g boneless and skinless chicken thighs or tenders cut into 1 inch cubes or so
+- 250 ml plain yogurt
 - 1 1/2 tablespoons minced garlic
 - 1 teaspoon minced fresh ginger
 - 3.5 teaspoons chicken tikka masala seasoning ([MDH](https://mdhspices.com/product/mdh-chicken-masala/), [Shan](https://www.shanfoods.com/product/recipe-mixes/curry/chicken-masala/), or [Rasoi Magic](https://www.rasoimagic.com/products) brand) 
@@ -24,13 +24,13 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 - 1 1/2 tablespoons garlic finely grated
 - 1 teaspoon ginger finely grated
 - 3.5 teaspoons chicken tikka masala seasoning (MDH or shan brand)
-- 12-14 oz  tomato puree / tomato sauce
+- 350-400 g tomato puree / tomato sauce
 - 2 medium fresh tomatoes diced
 - 1/3 - 1/2 teaspoon teaspoon Kashmiri chili (or ground red chili powder)
 - 1 teaspoon salt
-- 1 1/4 cups of heavy or thickened cream
+- 300 ml of heavy or thickened cream
 - 1 teaspoon brown sugar
-- 1/4 cup water if needed
+- 60 ml water if needed
 
 ## Instructions ℹ️
 
