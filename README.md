@@ -8,7 +8,7 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 
 ### Chicken marinade 🐔
 
-- 800 g boneless and skinless chicken thighs or tenders cut into 1 inch cubes or so
+- 800 g boneless and skinless chicken thighs or tenders cut into 2.5 cm cubes or so
 - 250 ml plain yogurt
 - 1 1/2 tablespoons minced garlic
 - 1 teaspoon minced fresh ginger
