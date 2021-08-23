@@ -26,7 +26,7 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 - 3.5 teaspoons chicken tikka masala seasoning (MDH or shan brand)
 - 350-400 g tomato puree / tomato sauce
 - 2 medium fresh tomatoes diced
-- 1/3 - 1/2 teaspoon teaspoon Kashmiri chili (or ground red chili powder)
+- 1/3 - 1/2 teaspoon Kashmiri chili (or ground red chili powder)
 - 1 teaspoon salt
 - 300 ml of heavy or thickened cream
 - 1 teaspoon brown sugar
